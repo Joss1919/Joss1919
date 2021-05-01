@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Joss1919
+- 👀 I’m interested in UI/UX, Photography and want to learn Coding
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on interesting projects
+- 📫 How to reach me 
